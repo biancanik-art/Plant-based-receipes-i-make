@@ -33,3 +33,39 @@
 - Pentru un blat mai ferm poți încerca încă 20–30 g făină de năut ori quinoa măcinată.
 - Nu gusta compoziția crudă: făina de năut și quinoa trebuie gătite.
 - Timpul nu garantează coacerea; contează grosimea stratului și sucul prunelor.
+
+## Variantă opțională — prepararea efectivă cu quinoa fiartă, tofu, miere și fructe
+
+Aceasta este o variantă **relatată după preparare**, diferită de rețeta vegană fără ulei de mai sus. Conține **miere (deci nu este vegană)** și **puțin ulei de avocado pentru hârtia de copt**. Unele cantități nu au fost cântărite și rămân nespecificate; nu sunt valori recomandate sau confirmate.
+
+### Ingrediente folosite / adăugate
+
+- Făină de năut
+- Quinoa **fiartă, cu boabele întregi**, folosită atât ca strat, cât și în compoziție
+- Semințe de in măcinate
+- Banane: în amestecul principal și încă **1 banană** amestecată separat cu cacao pentru partea superioară
+- Tofu simplu, **nesărat**
+- Condimente pentru **turtă dulce**
+- Prune rupte, atât jos, cât și deasupra
+- Struguri deasupra
+- Miere: la baza vasului, în amestec și peste fructele de deasupra
+- Puțin ulei de avocado, aplicat pe hârtia de copt
+- Suc de portocale turnat deasupra
+- **1 lingură cacao**, amestecată cu banana pentru stratul de deasupra
+- Opțional, dacă au fost folosite: alune de pădure măcinate (cantitatea din rețeta de bază nu este confirmată pentru această încercare)
+
+### Asamblare, în ordinea descrisă
+
+1. La baza vasului a fost pusă **miere**, apoi **prune**.
+2. Hârtia de copt a fost unsă cu **puțin ulei de avocado**. A fost adăugat un strat de **quinoa fiartă**. Poziționarea exactă a hârtiei față de primul strat de miere/prune nu a fost precizată.
+3. Separat au fost amestecate **făina de năut, bananele, semințele de in măcinate, mierea și condimentele pentru turtă dulce**.
+4. În acest amestec au fost încorporate **restul de quinoa fiartă** și **tofu nesărat**.
+5. Deasupra au fost puse **mai multe prune, struguri, miere și suc de portocale**.
+6. Tot deasupra a fost adăugată **o banană amestecată cu o lingură de cacao**.
+7. Coacerea trebuie adaptată la consistența efectivă a acestei variante, care este mai umedă decât rețeta inițială. Nu există încă un timp final de coacere confirmat pentru această versiune.
+
+### Observații pentru următoarea încercare
+
+- Mierea, fructele, sucul de portocale și quinoa fiartă cresc umiditatea; rezultatul poate fi mai apropiat de o prăjitură foarte umedă/budincă.
+- Nu au fost confirmate cantitățile de miere, tofu, struguri, suc de portocale sau quinoa fiartă adăugată în fiecare strat.
+- Pentru o preparare viitoare, quinoa înmuiată peste noapte trebuie păstrată la frigider; fierberea nu garantează neutralizarea toxinelor bacteriene eventual formate în timpul înmuierii la temperatura camerei.
